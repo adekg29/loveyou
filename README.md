@@ -2,7 +2,7 @@
 Maukah Kau Menjadi Pacarku???
 
 Demo
-https://rina.adewakun.my.id/
+https://dean.moelogger.com
 
 Support me
-https://adewakun.my.id/
+https://adekg.com/
